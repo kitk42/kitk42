@@ -1,1 +1,7 @@
-## Kitk42
+## About Kitk42
+
+## Certified
+
+## Skills
+
+## Portfolio
